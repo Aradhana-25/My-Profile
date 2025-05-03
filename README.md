@@ -7,4 +7,8 @@
 - 🎓 M.Tech, SKIT, Rajasthan Technical University – 2021
 - 🎓 B.Tech, MAIET, Rajasthan Technical University – 2018
 
+  ## 🌐 Socials:
+ [![LinkedIn](www.linkedin.com/in/aradhana-mittal-882363245) 
+
+
 📫 Reach me at: mittal11101996@gmail.com
